@@ -1,1 +1,1 @@
-# Yıldız Nöbeti 
+Yıldız Nöbeti 
