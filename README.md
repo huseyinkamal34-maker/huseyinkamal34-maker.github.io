@@ -1,1 +1,1 @@
-# huseyinkamal34-maker.github.io
+# Yıldız Nöbeti 
